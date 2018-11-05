@@ -21,6 +21,6 @@ Arja se narodila 19.5.1982 v Jihlavě, kde navštěvovala Základní školu Seif
 V roce 2003 se přestěhovala do Havlíčkova Brodu kde začala pracovat ve firmě Hartmann Rico a.s. V současné době na pozici vedoucí směny výroby. Příležitostně pracuje jako fotomodelka. Má dvě děti.
 
 V roce 2016 se stala členkou Pirátské strany, je členkou Místního sdružení Havlíčkův Brod.
+Mezi její zájmy patří: rodina, tanac a hudba, zvířata a příroda, subkultury, lidská práva, psychologie, ekologie
 
-Mezi její zájmy patří: rodina, tanec a hudba, zvířata a příroda, subkultury, lidská práva, psychologie, ekologie.
 ---
